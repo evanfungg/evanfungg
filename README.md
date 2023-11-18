@@ -1,4 +1,4 @@
-### Hi there 👋 My name is not Evan Fung or Big Boi
+### Hi there 👋 My name is not Evan Fung or Big Boi and I am looking for fun
 
 <!--
 **evanfungg/evanfungg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
